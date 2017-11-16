@@ -1,4 +1,3 @@
-<style backgound="CCFF99">
 Chứng đau vai gáy, đau lưng thường xuyên xuất hiện ở người làm việc trong một tư thế trong thời gian dài, những người ngồi nhiều và ít vận động, do đó làm ảnh hưởng không nhỏ đến chất lượng công việc cũng như cuộc sống. Triệu chứng đau vai gáy bao gồm:
 <ul><li> Đau nhẹ ở vùng cổ và gáy, cổ khó vận động.</li>
 <li> Đau nhức ở vùng vai, gáy và thậm chí cả vùng lưng trên.</li>
@@ -43,4 +42,3 @@ Bạn có thể làm nóng thuốc khi nó bị nguội và chườm thêm 2-3 l
  <li> Chỉ cần đắp khoảng 5-10 phút, bạn sẽ thấy tình trạng đau của mình giảm đáng kể.</li></ul>
 Trên đây là  3 bài <a href="http://yhoccotruyensaigon.com/chua-dau-vai-gay-co-bang-thuoc-dong-y-co-hieu-qua-khong-280.html" title="thuốc chữa đau vai gáy" rel="dofollow">thuốc chữa đau vai gáy cổ bằng đông y</a> cực rẻ, cực hiệu nghiệm, bạn nên chọn cho mình một trong  ba bài thuốc phù hợp để áp dụng cho mình nhé.
 Xem thêm nhiều cách chữa bệnh bằng phương pháp đông y tại: http://bacsidongygioi.com
- </style>
